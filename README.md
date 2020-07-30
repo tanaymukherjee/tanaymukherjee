@@ -12,6 +12,6 @@ Presently, accelerating fast to get accustomed to the world of deep learning. Yo
 
 During free time, I like to read or listen to music. Watching sports is my best way to relax - be it cricket, tennis or soccer, I am in for all. Last read this book called - Crime and Punishment by Fyodor Dostoevsky. If you haven't read it yet, then please do at the first chance.
 
-Want to know more? Connect with me and we can have more discussion over a cup of Tea/Coffee. :)
+Want to know more? Connect with me on [LinkedIn](https://www.linkedin.com/in/tanay-mukherjee-96206861/) and we can have more discussions over a cup of Tea/Coffee/Icecream. :)
 
 **We bear, we grow; like seeds, like plants.**
