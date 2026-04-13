@@ -19,7 +19,6 @@ I like reading, listening to music, and watching sports — cricket, tennis, soc
 Got something interesting to discuss or collaborate on? Reach out anytime.
 
 📧 [its.tanay.here@gmail.com](mailto:its.tanay.here@gmail.com)
-
 💼 [LinkedIn](https://www.linkedin.com/in/tanay-mukherjee-96206861/)
 
 ---
